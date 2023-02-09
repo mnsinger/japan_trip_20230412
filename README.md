@@ -6,7 +6,7 @@ Newark 11:50 am takeoff
 
 ## 2023-04-13
 
-Arrive 2:30 pm
+Arrive 2:30 pm at Narita Airport
 
 [Check-in HOTEL SUI AKASAKA by ABEST](https://www.tripadvisor.com/Hotel_Review-g14129743-d15051011-Reviews-HOTEL_SUI_AKASAKA_BY_ABEST-Akasaka_Minato_Tokyo_Tokyo_Prefecture_Kanto.html)
 
@@ -18,11 +18,17 @@ Arrive 2:30 pm
 
 ## 2023-04-16
 
+Activate JR Pass
+
 ## 2023-04-17
 
 Check-out of hotel
 
 [Start Shimanami Kaido itinerary](https://kokoro-jp.com/culture/1432/)
+
+Shinkansen from Tokyo to Fukuyama (3.5 hours)
+
+[Fukuyama Station Info](https://www.japan-guide.com/e/e3431.html)
 
 ## 2023-04-18
 
