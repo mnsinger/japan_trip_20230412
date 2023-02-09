@@ -22,13 +22,17 @@ Activate JR Pass
 
 ## 2023-04-17
 
-Check-out of hotel
+Check-out of hotel early in the morning
 
 [Start Shimanami Kaido itinerary](https://kokoro-jp.com/culture/1432/)
 
 Shinkansen from Tokyo to Fukuyama (3.5 hours)
 
+Arrive in Fukuyama at around noon
+
 [Fukuyama Station Info](https://www.japan-guide.com/e/e3431.html)
+
+Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1089814-Reviews-Suminoe_Ryokan-Onomichi_Hiroshima_Prefecture_Chugoku.html)
 
 ## 2023-04-18
 
