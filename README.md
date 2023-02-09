@@ -36,6 +36,8 @@ Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1
 
 ## 2023-04-18
 
+Eat breakfast at Suminoe Ryokan (need to make reservation in advance)
+
 ## 2023-04-19
 
 ## 2023-04-20
