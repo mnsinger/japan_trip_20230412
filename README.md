@@ -1,6 +1,6 @@
 # General Links
 
-[https://www.timeout.com/tokyo/restaurants/best-cheap-michelin-star-restaurant-meals-in-tokyo](*Timeout - 15 Michelin Starred Restaurants in Tokyo*)
+[Timeout - 15 Michelin Starred Restaurants in Tokyo](https://www.timeout.com/tokyo/restaurants/best-cheap-michelin-star-restaurant-meals-in-tokyo)
 
 # Newark -> Tokyo -> Shimanami Kaido Trip
 
