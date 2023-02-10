@@ -2,6 +2,8 @@
 
 [Timeout - 15 Michelin Starred Restaurants in Tokyo](https://www.timeout.com/tokyo/restaurants/best-cheap-michelin-star-restaurant-meals-in-tokyo)
 
+[Shimanami Kaido Itinerary](https://kokoro-jp.com/culture/1432/)
+
 # Newark -> Tokyo -> Shimanami Kaido Trip
 
 ## 2023-04-12
