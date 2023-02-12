@@ -4,6 +4,8 @@
 
 [Shimanami Kaido Itinerary](https://kokoro-jp.com/culture/1432/)
 
+[Koenji Tour](https://roadsandkingdoms.com/travel-guide/tokyo/walking-tour-afternoon-koenji-area/)
+
 # Newark -> Tokyo -> Shimanami Kaido Trip
 
 ## 2023-04-12
