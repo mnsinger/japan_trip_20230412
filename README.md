@@ -22,6 +22,8 @@ Arrive 2:30 pm at Narita Airport
 
 ## 2023-04-14
 
+Kai arrives Tokyo
+
 ## 2023-04-15
 
 ## 2023-04-16
@@ -40,11 +42,21 @@ Arrive in Fukuyama at around noon
 
 [Fukuyama Station Info](https://www.japan-guide.com/e/e3431.html)
 
+Local train to Onomichi
+
+Cycle from Onomichi Port to Ryokan Suminoe
+
 Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1089814-Reviews-Suminoe_Ryokan-Onomichi_Hiroshima_Prefecture_Chugoku.html)
 
 ## 2023-04-18
 
+Kai leaves Tokyo
+
 Eat breakfast at Suminoe Ryokan (need to make reservation in advance)
+
+Cycle to Imabari
+
+Stay at Hotel Kikusui Imabari
 
 ## 2023-04-19
 
