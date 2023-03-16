@@ -34,6 +34,10 @@ Activate JR Pass
 
 ## 2023-04-17
 
+## 2023-04-18
+
+Kai leaves Tokyo
+
 Check-out of hotel early in the morning
 
 [Start Shimanami Kaido itinerary](https://kokoro-jp.com/culture/1432/)
@@ -50,9 +54,7 @@ Cycle from Onomichi Port to Ryokan Suminoe
 
 Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1089814-Reviews-Suminoe_Ryokan-Onomichi_Hiroshima_Prefecture_Chugoku.html)
 
-## 2023-04-18
-
-Kai leaves Tokyo
+## 2023-04-19
 
 Eat breakfast at Suminoe Ryokan (need to make reservation in advance)
 
@@ -60,13 +62,11 @@ Cycle to Imabari
 
 Stay at Hotel Kikusui Imabari
 
-## 2023-04-19
+## 2023-04-20
 
 [Check-in HOTEL SUI AKASAKA by ABEST](https://www.tripadvisor.com/Hotel_Review-g14129743-d15051011-Reviews-HOTEL_SUI_AKASAKA_BY_ABEST-Akasaka_Minato_Tokyo_Tokyo_Prefecture_Kanto.html)
 
 [Hotel Map](https://goo.gl/maps/uvfthrCz589Q3oZQ9)
-
-## 2023-04-20
 
 ## 2023-04-21
 
