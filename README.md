@@ -54,6 +54,8 @@ Cycle from Onomichi Port to Ryokan Suminoe
 
 Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1089814-Reviews-Suminoe_Ryokan-Onomichi_Hiroshima_Prefecture_Chugoku.html)
 
+[Hotel Map](https://goo.gl/maps/wVB7Rp6LMxeEyzLN8)
+
 ## 2023-04-19
 
 Eat breakfast at Suminoe Ryokan (need to make reservation in advance)
@@ -61,6 +63,8 @@ Eat breakfast at Suminoe Ryokan (need to make reservation in advance)
 Cycle to Imabari
 
 Stay at Hotel Kikusui Imabari
+
+[Hotel Map](https://goo.gl/maps/ELwWxRtELmaeLLSi7)
 
 ## 2023-04-20
 
