@@ -12,7 +12,7 @@
 
 ## 2023-04-12
 
-Newark 11:50 am takeoff
+Newark 11:40 am takeoff
 
 ## 2023-04-13
 
