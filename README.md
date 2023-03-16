@@ -1,5 +1,7 @@
 # General Links
 
+[Visit Japan Web](https://www.vjw.digital.go.jp/)
+
 [Timeout - 15 Michelin Starred Restaurants in Tokyo](https://www.timeout.com/tokyo/restaurants/best-cheap-michelin-star-restaurant-meals-in-tokyo)
 
 [Shimanami Kaido Itinerary](https://kokoro-jp.com/culture/1432/)
