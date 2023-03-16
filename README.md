@@ -50,7 +50,9 @@ Arrive in Fukuyama at around noon
 
 Local train to Onomichi
 
-Cycle from Onomichi Port to Ryokan Suminoe
+Cycle from Onomichi Port to Ryokan Suminoe (shouldn't take more than 3 or 4 hours with breaks for food)
+
+[Onomichi Port bike rental](https://goo.gl/maps/Lc31FVbJ3SQYpxWH8)
 
 Check-in to [Suminoe Ryokan](https://www.tripadvisor.com/Hotel_Review-g651649-d1089814-Reviews-Suminoe_Ryokan-Onomichi_Hiroshima_Prefecture_Chugoku.html)
 
