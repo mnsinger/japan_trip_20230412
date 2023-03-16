@@ -62,6 +62,10 @@ Stay at Hotel Kikusui Imabari
 
 ## 2023-04-19
 
+[Check-in HOTEL SUI AKASAKA by ABEST](https://www.tripadvisor.com/Hotel_Review-g14129743-d15051011-Reviews-HOTEL_SUI_AKASAKA_BY_ABEST-Akasaka_Minato_Tokyo_Tokyo_Prefecture_Kanto.html)
+
+[Hotel Map](https://goo.gl/maps/uvfthrCz589Q3oZQ9)
+
 ## 2023-04-20
 
 ## 2023-04-21
