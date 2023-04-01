@@ -86,12 +86,12 @@ Arrive Newark at 4:45 pm
 
 [Marugin](https://goo.gl/maps/jbNNDWLD2GYxVaWQ8) - Near Imperial Palace
 
-[青山ゑびす堂](https://goo.gl/maps/rsngQFBpn88aKjr19)
+[青山ゑびす堂](https://goo.gl/maps/rsngQFBpn88aKjr19) - Omotesando
 
-[Gyoza Shack](https://goo.gl/maps/JJFENR9QSVRQAK2CA)
+[Gyoza Shack](https://goo.gl/maps/JJFENR9QSVRQAK2CA) - Sangenjaya
 
-[Sushi no Midori - Shibuya](https://goo.gl/maps/DKRwPocRj1fiBU58A)
+[Sushi no Midori - Shibuya](https://goo.gl/maps/DKRwPocRj1fiBU58A) - Shibuya
 
-[Sushi no Midori - Akasaka](https://goo.gl/maps/LrX3R2vZfGdozigL7)
+[Sushi no Midori - Akasaka](https://goo.gl/maps/LrX3R2vZfGdozigL7) - Akasaka
 
-[Gompachi Nishi-Azabu](https://goo.gl/maps/LrX3R2vZfGdozigL7)
+[Gompachi Nishi-Azabu](https://goo.gl/maps/LrX3R2vZfGdozigL7) - Nishi-Azabu
