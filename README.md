@@ -81,3 +81,17 @@ Stay at Hotel Kikusui Imabari
 Depart Tokyo at 5:00 pm
 
 Arrive Newark at 4:45 pm
+
+# Tokyo Restaurants
+
+[Marugin](https://goo.gl/maps/jbNNDWLD2GYxVaWQ8) - Near Imperial Palace
+
+[青山ゑびす堂](https://goo.gl/maps/rsngQFBpn88aKjr19)
+
+[Gyoza Shack](https://goo.gl/maps/JJFENR9QSVRQAK2CA)
+
+[Sushi no Midori - Shibuya](https://goo.gl/maps/DKRwPocRj1fiBU58A)
+
+[Sushi no Midori - Akasaka](https://goo.gl/maps/LrX3R2vZfGdozigL7)
+
+[Gompachi Nishi-Azabu](https://goo.gl/maps/LrX3R2vZfGdozigL7)
