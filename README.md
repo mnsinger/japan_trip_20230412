@@ -6,7 +6,7 @@
 
 [Timeout - 15 Michelin Starred Restaurants in Tokyo](https://www.timeout.com/tokyo/restaurants/best-cheap-michelin-star-restaurant-meals-in-tokyo)
 
-Shimanami Kaido Itinerary [1](https://kokoro-jp.com/culture/1432/) [2](https://www.reddit.com/r/JapanTravel/comments/1292fye/trip_report_shimanami_kaido_2023/)
+Shimanami Kaido Itinerary [1](https://kokoro-jp.com/culture/1432/) [2](https://www.reddit.com/r/JapanTravel/comments/1292fye/trip_report_shimanami_kaido_2023/) [3](https://epicroadrides.com/cycling-blog/shimanami-kaido-cycling-guide/)
 
 [Koenji Tour](https://roadsandkingdoms.com/travel-guide/tokyo/walking-tour-afternoon-koenji-area/)
 
