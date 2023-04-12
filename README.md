@@ -20,6 +20,12 @@ Newark 11:40 am takeoff
 
 Arrive 2:30 pm at Narita Airport
 
+Skyliner to Nippori Station. 12 minute walk to Nishi-Nippori. Chiyoda Line to Akasaka Station. 5 minute walk to hotel.
+
+Narita Express to Tokyo Station. 7 minute walk to Nijubashimae. Chiyoda Line to Akasaka Station. 5 minute walk to hotel.
+
+Skyliner to Keisei Ueno Station. 5 minute walk to Ueno Station. Ginza Line to Tameike-sanno Station. 10 minute walk to hotel.
+
 [Check-in HOTEL SUI AKASAKA by ABEST](https://www.tripadvisor.com/Hotel_Review-g14129743-d15051011-Reviews-HOTEL_SUI_AKASAKA_BY_ABEST-Akasaka_Minato_Tokyo_Tokyo_Prefecture_Kanto.html)
 
 [Hotel Map](https://goo.gl/maps/uvfthrCz589Q3oZQ9)
